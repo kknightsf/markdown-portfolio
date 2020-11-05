@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+[] Pizza
+[] Beer
+[] The abilty to crush people with a single blow
